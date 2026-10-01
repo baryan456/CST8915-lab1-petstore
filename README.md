@@ -9,7 +9,7 @@
 
 ## Demo Video
 
-🎥 [Watch Demo Video](PASTE-YOUR-YOUTUBE-LINK-HERE)
+🎥 [Watch Demo Video](https://youtu.be/6FVh9vbCRes?si=lRcTUKdwKUkiOC88)
 
 ---
 
